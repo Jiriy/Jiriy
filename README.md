@@ -6,5 +6,5 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-Hello 
+Hello I'm Aor
 
